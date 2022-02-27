@@ -1,1 +1,1 @@
-Brain f#uck is a mastery ngl.
+Brain f#ck is a mastery ngl.
